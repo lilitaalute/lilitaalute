@@ -3,3 +3,4 @@
 - Providing an out-sourcing full-cycle recruitment projects for Baltic states based companies.
 - If You are an IT specialist with 2+ years of experience - considering a job change - 
 - 📫 Be free to reach me by email lilita@darbaguru.lv or on LinkedIn. 
+- Have a great day and let's keep in touch :) 
