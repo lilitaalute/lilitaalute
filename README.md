@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @lilitaalute 
-- I work as IT recruiter in DarbaGuru - a recruitment and consulting company.
-- I’m looking for IT specialists on job positions for Baltic based companies. 
-- 📫 You can reach me on email lilita@darbaguru.lv 
+- 👋 Hi, my name is Lilita.
+- For a 4 years now I'm working as a IT recruiter in the DarbaGuru - a recruitment and consulting company.
+- Providing an out-sourcing full-cycle recruitment projects for Baltic states based companies.
+- If You are an IT specialist with 2+ years of experience - considering a job change - 
+- 📫 Be free to reach me by email lilita@darbaguru.lv or on LinkedIn. 
