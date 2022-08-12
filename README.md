@@ -1,5 +1,5 @@
 - 👋 Hi, my name is Lilita.
-- For a 4 years now I'm working as a IT recruiter in the DarbaGuru - a recruitment and consulting company.
+- For a 4 years now I'm working as an IT recruiter in the DarbaGuru - a recruitment and consulting company.
 - Providing an out-sourcing full-cycle recruitment projects for Baltic states based companies.
 - If You are an IT specialist with 2+ years of experience - considering a job change - 
 - 📫 Be free to reach me by email lilita@darbaguru.lv or on LinkedIn. 
