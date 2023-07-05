@@ -1,12 +1,13 @@
-- 👋 Hi, my name is Lilita.
-- More than 4 years now I'm working as an IT recruiter in the DarbaGuru - a recruitment and consulting company.
+👋 Hi, my name is Lilita.
+For over 4 years I was working with IT position filling for Baltic States based clients.
+Most of all Developer roles - Software development on PHP, Java, C# 
+All - back-end, front-end, fullstack roles.
 
-- Providing an out-sourcing full-cycle recruitment projects for Baltic states based companies.
-- The speciality of mine is software development positions on back-end PHP, Java, C#.
+At the moment help DarbaGuru recruitment team with Independent Recruiter operational management and 
+professional growth supporting.
 
-- So if You are a middle level (2+ years of experience) Developer working with these technologies - 
-
-📫 Be free to reach me by email lilita@darbaguru.lv or on LinkedIn. 
-
-Also on LinkedIn there are available 2023 years brand new Baltic Developer work communities, that you can briefly join.
-Have a great day and let's keep in touch :) 
+Still are available for Networking within IT field:
+For an interest in open roles be free to join one of these groups - 
+PHP - https://www.linkedin.com/groups/12760082/
+Java - https://www.linkedin.com/groups/12758091
+Or all Baltic states positions on Telegram - https://t.me/+e4o8Xbs7jho4NWQ0
