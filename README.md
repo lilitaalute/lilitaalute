@@ -10,7 +10,7 @@ Where I came from the IT recruitment side (after some web development courses in
 
 Sorry, coding is not for me :):) But working in this atmosphere - oh, Yes. It's totally mine.
 
-Where in recruitment for 5 years helping Latvia & Baltics companies to find & attract IT specialists (middle, senior, team lead) - mostly in Developers, actually.
+Was in recruitment for 5 years helping Latvia & Baltics companies to find & attract IT specialists (middle, senior, team lead) - mostly in Developers, actually.
 
 Were worked closely to companies CTO/team leads in larger ones, HR & CEO's.
 
