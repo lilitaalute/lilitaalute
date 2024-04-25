@@ -14,7 +14,7 @@ Was in recruitment for 5 years helping Latvia & Baltics companies to find & attr
 
 Were worked closely to companies CTO/team leads in larger ones, HR & CEO's.
 
-Have been also in IT recruitment team leaders role & raised next leader to take the whole to lead next.
+Have been also in IT recruitment team leaders role & raised next leader to take the whole. 
 
 Use my talents of information search, learning, structuring, listening, thinking out of the box & creative idea finding 
 
