@@ -1,38 +1,17 @@
--👋 Hi, Lil is here.
+-👋 Hi, it's Lilita here - Deep Brand Strategy Partner for Your Software Business. 
 
-If you are an IT niche specialist, team lead or a founder than we probably have a point to discuss options to cooperate. 
+While working on Your Software Freelancing journey OR creating with a team MVP around Your new SaaS Startup - 
+Branding is something you should think about. 
 
-My work in own brand Career Leader is aligned to deepest purpose to put my efforts in great life's conditions creation for current & next generation.
+Why? Well - Clients, Money, Partners, Collaboration, Investors, Innovation Support.
 
-I do it through my most loved niche - an IT. 
+If you want to Boost them -- then Branding is your Best Friend.
 
-Where I came from the IT recruitment side (after some web development courses in early 2018). 
+How to make it real? There are some Rules. Would love to share them with you and teach how to Play. 
+Are You in the Game? 
 
-Sorry, coding is not for me :):) But working in this atmosphere - oh, Yes. It's totally mine.
+Look in my Website & Reach out for the First Branding Games Level. 
 
-Was in recruitment for 5 years helping Latvia & Baltics companies to find & attract IT specialists (middle, senior, team lead) - mostly Developers, actually.
-
-Were worked closely to companies CTO/team leads in larger ones, HR & CEO's.
-
-Have been also in IT recruitment team leaders role & raised next leader to take the whole. 
-
-Use my talents of information search, learning, structuring, listening, thinking out of the box & creative idea finding 
-
-+ knowledge & exprerience in different business building parts.
-
-How can support? What problems to solve?
-
-- Oh, I really am on leadership skill teaching through Career Mentoring.
-
-- Can support with knowledge & resources of Job searching & Requalification in smaller services of Career Consulting.
-
-- & currently learning Brand Strategy to put this in IT start-up building services - a new challenge for me :):)
-So excited :):)
-
-If see some cooperation options, be free to reach me out in LinkedIn or by email mentors@career-leader.com
-
-Lilita, 
-
-Your Best IT Career 
-
-Mentor 
+Cheers, Lilita
+Can be also Your Partner for Deep Branding
+itstarbrand.com
