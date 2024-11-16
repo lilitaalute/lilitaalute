@@ -1,6 +1,6 @@
 -👋 Hi, it's Lilita here - Deep Brand Strategy Partner for Your Software Business 💻
 
-While working on Your Software Freelancing journey OR creating with a team MVP around Your new SaaS Startup - 
+While working on Your First-time SaaS startup journey and creating MVP -  
 
 Branding is something you should think about. 
 
@@ -8,14 +8,14 @@ Why? Well 💎 Clients, Money, Partners, Collaboration, Investors, Innovation Su
 
 If you want to Boost them ⚡ then Branding is your Best Friend.
 
-How to make it real? There are some Rules. Would love to share them with you and teach how to Play. 
+How to make it real? There are some Rules. Would love to share them with you and teach - How to Play. 
 
 Are You in the Game? 
 
-Look in my Website & Reach out for the First Branding Games Level. 
+Look on my Website & Reach out for the First Branding Games Level. 
 
 Cheers, Lilita 🌹
 
-😎 Can be also Your Partner for Deep Branding 
+😎 Can be Your next Partner for Deep Branding 
 
 https://itstarbrand.com/
